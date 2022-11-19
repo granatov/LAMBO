@@ -1,1 +1,1 @@
-# LAMBO
+https://granatov.github.io/LAMBO/
